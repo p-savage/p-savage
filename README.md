@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @p-savage
 - 👀 I’m interested in ... market analysis, finance, gambling, video animation, 3D modeling 📈💵🎲👾🧬
 - 🌱 I’m currently learning ... Python 🐍
-- 💞️ I’m looking to collaborate on ... side projects (I'm employeed full-time in another industry) 💼
+- 💞️ I’m looking to collaborate on/learn about ... video animation 💻✍️
 - 📫 How to reach me ... i guess just shoot me an email ->   pjslouisville502@gmail.com 
 - 😄 Pronouns ... he / him 👨‍🦰
 - ⚡ Fun fact: ... I play around with sewing, embroidery, and other textile related crafts 🪡🧵
